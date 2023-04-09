@@ -1,2 +1,0 @@
-# HHHW
-HHHW Project
